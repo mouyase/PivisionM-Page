@@ -14,4 +14,4 @@ Telegram群组：[https://t.me/PivisionM](https://t.me/PivisionM)
 
 Telegram发布频道：[https://t.me/PivisionMChannal](https://t.me/PivisionMChannal)
 
-QQ群：[插画艺术家爱好者](https://jq.qq.com/?_wv=1027&k=5nQMBhx)（闲聊吹水用，不接受伸手党，禁色情内容）
+QQ群：[画师是人类的瑰宝573671320](https://jq.qq.com/?_wv=1027&k=5nQMBhx)（闲聊吹水用，不接受伸手党，禁色情内容）
