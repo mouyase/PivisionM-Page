@@ -4,7 +4,7 @@
 
 ## 下载地址
 
-Github：[**https://github.com/mouyase/PivisionM/releases/latest/download/PivisionM.apk**](https://github.com/mouyase/PivisionM/releases/latest/download/PivisionM.apk)
+Github节点：[**https://github.com/mouyase/PivisionM/releases/latest/download/PivisionM.apk**](https://github.com/mouyase/PivisionM/releases/latest/download/PivisionM.apk)
 
 蓝奏云：[**https://www.lanzous.com/b00n5cwdg**](https://www.lanzous.com/b00n5cwdg) 提取密码:`4cy.me`
 
